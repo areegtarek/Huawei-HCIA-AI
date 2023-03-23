@@ -7,3 +7,4 @@ This course is HCIA - AI V3.0. Through this course, you will systematically unde
 
 
 
+![image](https://drive.google.com/file/d/18PVEMCVleewcnZ6573FY8mg--tBXg5tz/view?usp=share_link)
